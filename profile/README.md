@@ -1,1 +1,1 @@
-# Thank you for dreaming!
+# Welcome to Kenatsumu Studio GitHub Page.
